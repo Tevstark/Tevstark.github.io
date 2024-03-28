@@ -19,5 +19,5 @@ My ultimate goal is to become a well-rounded software developer, capable of craf
 So, if you're looking for a passionate, driven, and individual to join the academy, I'm your person. Let's embark on this journey together and create something truly remarkable.
 
 ### Contact
-You can reach me on my [LinkedIn](https://www.linkedin.com/in/tevinkamau/) or send me an [Email](tevkamau@gmail.com)
+You can reach me on my [LinkedIn](https://www.linkedin.com/in/tevinkamau/) or send me an Email at <tevkamau@gmail.com>
 
